@@ -1,6 +1,6 @@
-Hey, I'm Runzzun𐙚
+𝐇𝐞𝐲, 𝐈'𝐦 𝐑𝐮𝐧𝐳𝐳𝐮𝐧 𐙚
 
-Full Stack Developer | Building things & solving problems.
+𝐅𝐮𝐥𝐥 𝐒𝐭𝐚𝐜𝐤 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫 | 𝐁𝐮𝐢𝐥𝐝𝐢𝐧𝐠 𝐭𝐡𝐢𝐧𝐠𝐬 & 𝐬𝐨𝐥𝐯𝐢𝐧𝐠 𝐩𝐫𝐨𝐛𝐥𝐞𝐦𝐬.
 
 I enjoy working across the stack, figuring out how things work, solving interesting problems, and building stuff that's simple, useful, and actually makes sense.
 I'm always curious, always experimenting, and always down to learn something new. Basically, there's always something cooking ꣑ৎ. 
